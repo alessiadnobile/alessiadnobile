@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @alessiadnobile
 - 👀 I’m interested in UX and UI Design
-- 🌱 I’m currently learning how to dive into new projects and give my contribute
+- 🌱 I’m currently looking for new projects to offer my contribute to
 - 💞️ I’m looking to collaborate on UX and UI Design
 - 📫 How to reach me: alessiadnobile@gmail.com
